@@ -4,4 +4,4 @@
 
 c+h always welcomed, please do interact :)
 
-also read [rentry](https://rentry.co/spilled) and my [patreon](https://patreon.com/shinonomeakito) byi!!
+also read [rentry](https://rentry.co/akitoyr) and my [patreon](https://patreon.com/shinonomeakito) byi!!
