@@ -1,6 +1,6 @@
 **xia**, **akito** or **val**
 
-**he**/*they**, ace panromantic questioning lithromantic
+**he**/**they**, ace panromantic questioning lithromantic
 
 interactions always welcomed, please do interact :)
 
