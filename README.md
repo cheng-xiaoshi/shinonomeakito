@@ -1,7 +1,9 @@
-**akito** or **vico**
+**xia**, **akito** or **val**
 
-**he**/*they*/xe - nonbinary + panromantic asexual
+**he**/*they**, ace panromantic questioning lithromantic
 
-c+h always welcomed, please do interact :)
+interactions always welcomed, please do interact :)
 
-also read [rentry](https://rentry.co/akitoyr) and my [patreon](https://patreon.com/shinonomeakito) byi!!
+can i also say i'm a nonbinary demiboy HEP ME
+
+also read [rentry](https://rentry.co/linkup) and my [patreon](https://patreon.com/shinonomeakito) byi!!
